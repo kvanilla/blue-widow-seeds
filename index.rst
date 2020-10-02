@@ -1,4 +1,4 @@
-There are many places you can buy blue widow cannabis seeds, such as https://www.stickyseeds.co.uk/ . Depending on how the seed was cultivated, you could buy regular blue widow cannabis seeds, autoflowering blue widow cannabis seeds, or feminized low priced blue widow cannabis seeds. All of these are different categories of cannabis; however, they are all types of seeds that refer to how a specific type of cannabis has been developed.
+There are many places you can buy blue widow cannabis seeds, such as https://www.stickyseeds.co.uk/buy-cannabis-seeds/feminized/blue-widow Depending on how the seed was cultivated, you could buy regular blue widow cannabis seeds, autoflowering blue widow cannabis seeds, or feminized low priced blue widow cannabis seeds. All of these are different categories of cannabis; however, they are all types of seeds that refer to how a specific type of cannabis has been developed.
 
 By growing and cultivating the cannabis plant, it is possible to take different characteristics from it and create new breeds of cannabis. For example, you might have a female cannabis plant and wish to breed it into a male cannabis plant.
 
